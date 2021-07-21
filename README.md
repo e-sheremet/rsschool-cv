@@ -1,1 +1,0 @@
-https://e-sheremet.github.io/rsschool-cv/cv
