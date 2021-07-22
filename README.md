@@ -1,1 +1,1 @@
-https://e-sheremet.github.io/rsschool-cv/cv
+https://e-sheremet.github.io/rsschool-cv/
